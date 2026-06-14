@@ -1,0 +1,1 @@
+Replace placeholders by adding your licensed images here.
